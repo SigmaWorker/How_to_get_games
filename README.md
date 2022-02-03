@@ -1,4 +1,4 @@
-How to get access to games for school THIS IS ONLY FOR FCPS COMPUTERS
+How to get access to games for school 
 
 1.You need a github account and make it on a DIFFERNT EMAIL not YOUR SCHOOL EMAIL
 
