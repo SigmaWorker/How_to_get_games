@@ -8,4 +8,4 @@ How to get access to games for school
 
 4.Then wait for a day or 2
 
-DON"F FUCKING ASK ME IF I SAY NO JUST WAIT 2 WEEK THEN EMAIL ME BACK
+DON'F FUCKING ASK ME IF I SAY NO JUST WAIT 2 WEEK THEN EMAIL ME BACK
