@@ -1,6 +1,6 @@
 How to get access to games for school 
 
-1.You need a github account and make it on a FUCKING NORMAL EMAIL NOT A SCHOOL ONE DUMBASS 
+1.You need a github account and make it on a FUCKING NORMAL EMAIL NOT A SCHOOL EMAIL DUMBASS 
 
 2.Then email me at sigmaworkergithub@gmail.com
 
